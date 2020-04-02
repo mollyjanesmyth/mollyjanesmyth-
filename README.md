@@ -1,2 +1,2 @@
 # mollyjanesmyth-
-Human Factors Engineer and Desigfner 
+Human Factors Engineer and Designer 
